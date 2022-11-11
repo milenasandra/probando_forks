@@ -1,0 +1,4 @@
+## Fortalezas
+
+- Valiente
+-Carismático
