@@ -1,0 +1,1 @@
+Mis fortalezas son React, sql, javascript
